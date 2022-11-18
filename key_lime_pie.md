@@ -18,4 +18,3 @@ Mix egg yolks, condensed milk, zest, and finally lime juice. Beat with electric 
 Pour into cooled crust. Cook at 350 for 10 mins. Let it sit to cool off. Put in fridge to set for at least 3 hours.
 
 Beat together cream, put on top of pie creatively after pie has fully cooled and set.
-

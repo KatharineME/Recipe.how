@@ -13,5 +13,5 @@ The salt will help the carrots become soft and release their water.
 - Then add clean rice in layer on top. Pour in 2-3 cups of water. Cook on medium for 10 mins.
 - Try for less water. If you need more, add later.
  Flip the rice layer. Move rice on bottom of layer to top. Poke holes in rice layer. Cook on low for 15 minutes.
- Check rice consistency. If rice is soft enough, mix and serve. Otherwise add more water.
+ Rjkjk rice consistency. If rice is soft enough, mix and serve. Otherwise add more water.
 
