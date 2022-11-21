@@ -1,3 +1,5 @@
+https://www.koreanbapsang.com/yukgaejang-spicy-beef-soup-vegetables/
+
 ## Ingredients
 
 ▢ 1 ounce dried gosari, 고사리 (fernbrakes) - about 1 cup rehydrated
