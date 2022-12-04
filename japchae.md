@@ -13,7 +13,6 @@ https://www.koreanbapsang.com/japchae-korean-stir-fried-starch/
 ▢ salt
 ▢ egg garnish (jidan) - optional
 
-
 ## Sauce
 
 ▢ 3.5 tablespoons soy sauce
@@ -22,7 +21,6 @@ https://www.koreanbapsang.com/japchae-korean-stir-fried-starch/
 ▢ 2 teaspoons minced garlic
 ▢ 1 tablespoon roasted sesame seeds
 ▢ black pepper to taste
-
 
 ## Instructions
 

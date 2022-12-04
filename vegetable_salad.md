@@ -1,6 +1,6 @@
-1 large red bell pepper (1 ½ cups small diced)*
+1 large red bell pepper (1 ½ cups small diced)\*
 1/2 red onion (½ cup diced)
-1/2 English cucumber (1 cup diced**)
+1/2 English cucumber (1 cup diced\*\*)
 2 heads broccoli (2 cups very small florets)
 1/2 head cauliflower (2 cups very small florets)
 2 green onions

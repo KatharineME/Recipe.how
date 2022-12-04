@@ -23,7 +23,6 @@ https://www.koreanbapsang.com/bibim-guksu-korean-spicy-cold-noodles/
 ▢ 1 clove garlic minced
 ▢ 2 tablespoons soft drink (such as ginger ale, Sprite, etc.), apple juice, orange juice, or 1 tablespoon of Korean plum syrup (maesilcheong) optional
 
-
 ## Instructions
 
 - Mix all sauce ingredients and keep it cool in the fridge. The sauce can be prepared ahead of time, and it will keep well for up to 2 weeks.

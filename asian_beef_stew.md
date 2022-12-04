@@ -8,7 +8,7 @@ https://www.youtube.com/watch?v=41E3WXW-QeE
 2 Cinnamon sticks
 2 Bay leaves
 4 Cloves
-5 Dried chillies (pre-soaked) 
+5 Dried chillies (pre-soaked)
 2 tbsp Light soy sauce
 1 tbsp Dark soy sauce
 2 tbsp Chu hou sauce

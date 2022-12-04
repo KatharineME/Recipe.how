@@ -14,7 +14,7 @@ Zest from 3 limes
 Ground graham crackers to dust, mix in powdered sugar, add melted butter.
 Shape into crust in 9in pan, push down hard to create firm crust. Bake at 350 for 10 mins.
 
-Mix egg yolks, condensed milk, zest, and finally lime juice. Beat with electric mixer. 
+Mix egg yolks, condensed milk, zest, and finally lime juice. Beat with electric mixer.
 Pour into cooled crust. Cook at 350 for 10 mins. Let it sit to cool off. Put in fridge to set for at least 3 hours.
 
 Beat together cream, put on top of pie creatively after pie has fully cooled and set.

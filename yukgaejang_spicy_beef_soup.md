@@ -23,7 +23,7 @@ https://www.koreanbapsang.com/yukgaejang-spicy-beef-soup-vegetables/
 ## Optional additions
 
 ▢ 2 eggs lightly beaten
-▢ 3 ounces dangmyeon (당면), starch noodles  soaked in warm water for 20 minutes
+▢ 3 ounces dangmyeon (당면), starch noodles soaked in warm water for 20 minutes
 
 ## Instructions
 
