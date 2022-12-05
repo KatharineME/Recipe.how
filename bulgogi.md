@@ -2,30 +2,30 @@ https://www.koreanbapsang.com/bulgogi-korean-bbq-beef/
 
 ## Ingredients
 
-▢ 2 pounds thinly-sliced beef (rib eye or top sirloin) - see note
-▢ 3 scallions, cut into 2-inch pieces
-▢ 1 small onion, thinly sliced
-▢ 1 small carrot, thinly sliced - optional
+- 2 pounds thinly-sliced beef (rib eye or top sirloin) - see note
+- 3 scallions, cut into 2-inch pieces
+- 1 small onion, thinly sliced
+- 1 small carrot, thinly sliced - optional
 
 ## Marinade
 
-▢ 6 tablespoons soy sauce
-▢ 3 tablespoons water
-▢ 4 tablespoons sugar ( or you can use 2 T sugar 2 T honey) Use more if not using Korean pear or apple
-▢ 2 tablespoons rice wine or mirin
-▢ 2 tablespoons minced garlic
-▢ 2 tablespoons sesame oil
-▢ 2 teaspoons sesame seeds
-▢ 4 tablespoons grated Korean/Asian pear
-▢ ⅛ teaspoon pepper
+- 6 tablespoons soy sauce
+- 3 tablespoons water
+- 4 tablespoons sugar ( or you can use 2 T sugar 2 T honey) Use more if not using Korean pear or apple
+- 2 tablespoons rice wine or mirin
+- 2 tablespoons minced garlic
+- 2 tablespoons sesame oil
+- 2 teaspoons sesame seeds
+- 4 tablespoons grated Korean/Asian pear
+- ⅛ teaspoon pepper
 
 ## To serve bulgogi Seoul-style
 
-▢ 3 ounces potato starch noodles (soaked in hot water for 20 minutes and drained)
-▢ 3 scallions
-▢ 1 pack enoki mushrooms (stems removed)
-▢ 2 cups water, dashima broth, or beef broth
-▢ 1 teaspoon soy sauce
+- 3 ounces potato starch noodles (soaked in hot water for 20 minutes and drained)
+- 3 scallions
+- 1 pack enoki mushrooms (stems removed)
+- 2 cups water, dashima broth, or beef broth
+- 1 teaspoon soy sauce
 
 ## Instructions
 
