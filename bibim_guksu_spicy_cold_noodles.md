@@ -2,26 +2,27 @@ https://www.koreanbapsang.com/bibim-guksu-korean-spicy-cold-noodles/
 
 ## Ingredients
 
-▢ 8 ounces buckwheat noodles (memil guksu) or wheat flour noodles (somyeon/somen)
-▢ 1 small cucumber (about 3 ounces)
-▢ 1 small carrot (about 3 ounces)
-▢ 2 ounces red cabbage leaves
-▢ 2 ounces lettuce leaves
-▢ 1/2 cup thinly sliced kimchi
-▢ 1 boiled egg - optional
-▢ 1 tablespoon sesame oil See note
-▢ 2 teaspoons sesame seeds
+8 ounces buckwheat noodles (memil guksu) or wheat flour noodles (somyeon/somen)
+
+- 1 small cucumber (about 3 ounces)
+- 1 small carrot (about 3 ounces)
+- 2 ounces red cabbage leaves
+- 2 ounces lettuce leaves
+- 1/2 cup thinly sliced kimchi
+- 1 boiled egg - optional
+- 1 tablespoon sesame oil See note
+- 2 teaspoons sesame seeds
 
 ## Sauce
 
-▢ 3 tablespoons Korean chili pepper paste, gochujang
-▢ 1 tablespoon Korean chili pepper flakes, gochugaru
-▢ 1 teaspoon Korean/Asian hot mustard paste, gyeoja optional
-▢ 2 tablespoons sugar (or corn syrup/oligo syrup) adjust to taste
-▢ 2 tablespoons rice vinegar or apple cider vinegar adjust to taste
-▢ 1 tablespoon soy sauce
-▢ 1 clove garlic minced
-▢ 2 tablespoons soft drink (such as ginger ale, Sprite, etc.), apple juice, orange juice, or 1 tablespoon of Korean plum syrup (maesilcheong) optional
+- 3 tablespoons Korean chili pepper paste, gochujang
+- 1 tablespoon Korean chili pepper flakes, gochugaru
+- 1 teaspoon Korean/Asian hot mustard paste, gyeoja optional
+- 2 tablespoons sugar (or corn syrup/oligo syrup) adjust to taste
+- 2 tablespoons rice vinegar or apple cider vinegar adjust to taste
+- 1 tablespoon soy sauce
+- 1 clove garlic minced
+- 2 tablespoons soft drink (such as ginger ale, Sprite, etc.), apple juice, orange juice, or 1 tablespoon of Korean plum syrup (maesilcheong) optional
 
 ## Instructions
 
