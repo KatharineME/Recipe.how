@@ -2,25 +2,25 @@ https://www.koreanbapsang.com/japchae-korean-stir-fried-starch/
 
 ## Ingredients
 
-▢ 7 ounces Korean potato starch noodles (dangmyeon, 당면)
-▢ 1 carrot (about 3 ounces)
-▢ 1/2 medium onion, preferably sweet variety, (4 to 5 ounces)
-▢ 2 scallions
-▢ 4 ounces lean tender beef (sirloin, chuck tender, rib eye, etc.) or pork loin
-▢ 3 to 4 ounces fresh shiitake mushrooms (or 4 to 5 dried shiitake, soaked until plump) Or oyster mushrooms, wood ear mushrooms or button mushrooms. See note 1.
-▢ 6 ounces fresh spinach (preferably a bunch of spinach)
-▢ oil for stir frying
-▢ salt
-▢ egg garnish (jidan) - optional
+- 7 ounces Korean potato starch noodles (dangmyeon, 당면)
+  1 carrot (about 3 ounces)
+  1/2 medium onion, preferably sweet variety, (4 to 5 ounces)
+- 2 scallions
+- 4 ounces lean tender beef (sirloin, chuck tender, rib eye, etc.) or pork loin
+- 3 to 4 ounces fresh shiitake mushrooms (or 4 to 5 dried shiitake, soaked until plump) Or oyster mushrooms, wood ear mushrooms or button mushrooms. See note 1.
+- 6 ounces fresh spinach (preferably a bunch of spinach)
+- oil for stir frying
+- salt
+- egg garnish (jidan) - optional
 
 ## Sauce
 
-▢ 3.5 tablespoons soy sauce
-▢ 3 tablespoons sugar (or brown sugar) You can use a little less if you want.
-▢ 2 tablespoons sesame oil
-▢ 2 teaspoons minced garlic
-▢ 1 tablespoon roasted sesame seeds
-▢ black pepper to taste
+- 3.5 tablespoons soy sauce
+- 3 tablespoons sugar (or brown sugar) You can use a little less if you want.
+- 2 tablespoons sesame oil
+- 2 teaspoons minced garlic
+- 1 tablespoon roasted sesame seeds
+- black pepper to taste
 
 ## Instructions
 
