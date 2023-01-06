@@ -34,4 +34,4 @@ https://www.koreanbapsang.com/japchae-korean-stir-fried-starch/
 
 ## Optional egg garnish
 
-Separate the egg white and yolk. Lightly beat the white by gently cutting it with a spoon. Stir the yolk with a spoon until smooth. Heat a lightly oiled nonstick skillet over medium low heat. Pour each egg part into a thin layer, by tilting the skillet and/or spreading with a spoon. Cook each side briefly. (Do not brown the egg.) Roll it and thinly slice.
+- Separate the egg white and yolk. Lightly beat the white by gently cutting it with a spoon. Stir the yolk with a spoon until smooth. Heat a lightly oiled nonstick skillet over medium low heat. Pour each egg part into a thin layer, by tilting the skillet and/or spreading with a spoon. Cook each side briefly. (Do not brown the egg.) Roll it and thinly slice.
