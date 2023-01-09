@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=41E3WXW-QeE
 1 tbsp Dark soy sauce
 2 tbsp Chu hou sauce (or hoisin sauce)
 1 tbsp Fish sauce
-3 tbsp Shaoxing wine
+3 tbsp Shaoxing wine (or mirin)
 Salt & sugar to taste
 500ml Chicken stock
 500g Daikon (peeled and cut into chunks)
