@@ -7,4 +7,5 @@ Sea salt
 Fresh ground pepper
 
 Slice the tomatoes and place them on a plate.
+
 Top with torn or sliced mozzarella cheese and basil leaves. Drizzle with extra-virgin olive oil. If desired, drizzle with balsamic reduction. Top with sea salt and fresh ground pepper. Serve immediately. (Does not save well; tomatoes should not be stored refrigerated.)
