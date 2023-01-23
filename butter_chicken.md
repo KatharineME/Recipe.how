@@ -18,7 +18,7 @@ https://www.youtube.com/watch?v=VYSwRUUcq3g
 - 4 tbsp Chilli powder
 - 12 tbsp Sugar
 - 4 tbsp Garlic
-- 8 whole Onion (diced)
+- 2 whole Onion (diced)
 - 2000 ml Chicken stock
 - 400 g Butter
 - 12 tbsp Cream
