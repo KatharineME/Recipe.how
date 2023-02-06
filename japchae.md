@@ -3,7 +3,7 @@ https://www.koreanbapsang.com/japchae-korean-stir-fried-starch/
 ## Ingredients
 
 - 7 ounces Korean potato starch noodles (dangmyeon, 당면)
-  1 carrot (about 3 ounces)
+  1 carrot
   1/2 medium onion, preferably sweet variety, (4 to 5 ounces)
 - 2 scallions
 - 4 ounces lean tender beef (sirloin, chuck tender, rib eye, etc.) or pork loin
