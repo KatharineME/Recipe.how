@@ -3,7 +3,7 @@ https://www.koreanbapsang.com/bulgogi-korean-bbq-beef/
 ## Ingredients
 
 - 2 pounds thinly-sliced beef (rib eye or top sirloin) - see note
-- 3 scallions, cut into 2-inch pieces
+- 3 scallions, cut into 2-inch pieces - optional
 - 1 small onion, thinly sliced
 - 1 small carrot, thinly sliced - optional
 
