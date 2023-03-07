@@ -1,4 +1,4 @@
-1 1/2 to 2 pounds broccoli on the stalk, enough for 8 cups florets
+- 1 1/2 to 2 pounds broccoli on the stalk, enough for 8 cups florets
 1 cup sliced red onion
 1 carrot, julienned or grated
 ½ cup raisins
