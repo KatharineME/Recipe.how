@@ -1,7 +1,7 @@
 https://www.youtube.com/watch?v=41E3WXW-QeE
 
 - 1.4kg Beef chuck (cut into chunks)
-2 tbsp Cooking oil
+- 2 tbsp Cooking oil
 2 Onions (cut into wedges)
 1 Knob ginger (smashed)
 2 Star anises (or 1 tsp peppercorns)
