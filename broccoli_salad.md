@@ -1,12 +1,12 @@
 - 1 1/2 to 2 pounds broccoli on the stalk, enough for 8 cups florets
-1 cup sliced red onion
-1 carrot, julienned or grated
-½ cup raisins
-½ cup mayonnaise (vegan mayo as needed)
-3 tablespoons apple cider vinegar
-1 tablespoon sugar or maple syrup
-2 teaspoon Dijon mustard
-1 teaspoon kosher salt
+  1 cup sliced red onion
+  1 carrot, julienned or grated
+  ½ cup raisins
+  ½ cup mayonnaise (vegan mayo as needed)
+  3 tablespoons apple cider vinegar
+  1 tablespoon sugar or maple syrup
+  2 teaspoon Dijon mustard
+  1 teaspoon kosher salt
 
 For the topping
 

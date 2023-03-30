@@ -2,7 +2,7 @@ https://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
 
 ## Ingredients
 
-- 6 boneless chicken thighs, about 1 ½ pounds*
+- 6 boneless chicken thighs, about 1 ½ pounds\*
 - 1/2 teaspoon garlic powder
 - 1/2 teaspoon onion powder
 - 1/2 teaspoon paprika
@@ -19,7 +19,7 @@ https://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
 - Freshly chopped parsley, for garnish
 
 ## Instructions
- 
+
 - Use a paper towel to pat the chicken thighs dry.
 - In a small bowl, combine the garlic powder, onion powder, paprika, salt, and black pepper. Rub the seasoning mixture all over the chicken thighs, on both sides.
 - Heat a large cast iron to medium heat and add the olive oil.
@@ -30,4 +30,4 @@ https://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
 ## Notes
 
 You can use skin-on or skinless chicken thighs, whatever you prefer. You can use chicken breasts, but the thighs are juicier.
-Store leftover chicken thighs in an airtight container in the refrigerator for up to 3 days. 
+Store leftover chicken thighs in an airtight container in the refrigerator for up to 3 days.
