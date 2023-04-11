@@ -9,7 +9,7 @@ https://www.youtube.com/watch?v=41E3WXW-QeE
 - 2 Bay leaves
 - 4 Cloves (or 1 tsp cardamom)
 - 5 Dried chillies (pre-soaked) (or 1 tsp red pepper flakes)
-  2 tbsp Light soy sauce
+- 2 tbsp Light soy sauce
   1 tbsp Dark soy sauce
   2 tbsp Chu hou sauce (or hoisin sauce)
   1 tbsp Fish sauce
