@@ -12,10 +12,17 @@ https://www.youtube.com/watch?v=41E3WXW-QeE
 - 2 tbsp Light soy sauce
 - 1 tbsp Dark soy sauce
 - 2 tbsp Chu hou sauce (or hoisin sauce)
-  1 tbsp Fish sauce
-  3 tbsp Shaoxing wine (or mirin)
-  Salt & sugar to taste
-  500ml Chicken stock
-  500g Daikon (peeled and cut into chunks)
-  2 Carrot (peeled and cut into chunks)
-  Coriander for garnishing (or green onion)
+
+1 tbsp Fish sauce
+
+3 tbsp Shaoxing wine (or mirin)
+
+Salt & sugar to taste
+
+500ml Chicken stock
+
+500g Daikon (peeled and cut into chunks)
+
+2 Carrot (peeled and cut into chunks)
+
+Coriander for garnishing (or green onion)
