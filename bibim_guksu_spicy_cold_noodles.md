@@ -4,8 +4,9 @@ https://www.koreanbapsang.com/bibim-guksu-korean-spicy-cold-noodles/
 
 8 ounces buckwheat noodles (memil guksu) or wheat flour noodles (somyeon/somen)
 
-- 1 small cucumber (about 3 ounces)
-- 1 small carrot (about 3 ounces)
+1 small cucumber (about 3 ounces)
+
+1 small carrot (about 3 ounces)
 - 2 ounces red cabbage leaves
 - 2 ounces lettuce leaves
 - 1/2 cup thinly sliced kimchi
