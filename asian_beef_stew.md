@@ -50,7 +50,7 @@ Stir fry onion, ginger, spices, and chilli until fragrant. Add in the beef and s
 
 Add the soy sauce, alcohol, fish sauce, hoisin sauce, and mix well.
 
-Add the chicken atock and mix well.
+Add the chicken stock and mix well.
 
 Cover and let stew for 1.5 - 2 hours. Stir occasionally.
 
