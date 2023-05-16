@@ -39,3 +39,19 @@ Salt & sugar to taste
 2 Carrot (peeled and cut into chunks)
 
 Coriander for garnishing (or green onion)
+
+## Instructions
+
+Boil beef until scums form on top of the water. Strain a d pat dry.
+
+Pan fry beef until slightly brown. Remove from pan.
+
+Stir fry onion, ginger, spices, and chilli until fragrant. add in the beef and stir.
+
+Add the soy sauce, alcohol, fish sauce, hoisin sauce, and mix well.
+
+Add the chicken atock and mix well.
+
+Cover and let stew for 1.5 - 2 hours. Stir occasionally.
+
+Add carrot and daikon. Simmer for 20 minutes.
