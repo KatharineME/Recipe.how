@@ -42,7 +42,7 @@ Coriander for garnishing (or green onion)
 
 ## Instructions
 
-Boil beef until scums form on top of the water. Strain a d pat dry.
+Boil beef until scums form on top of the water. Strain and pat dry.
 
 Pan fry beef until slightly brown. Remove from pan.
 
