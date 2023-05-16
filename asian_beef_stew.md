@@ -46,7 +46,7 @@ Boil beef until scums form on top of the water. Strain and pat dry.
 
 Pan fry beef until slightly brown. Remove from pan.
 
-Stir fry onion, ginger, spices, and chilli until fragrant. add in the beef and stir.
+Stir fry onion, ginger, spices, and chilli until fragrant. Add in the beef and stir.
 
 Add the soy sauce, alcohol, fish sauce, hoisin sauce, and mix well.
 
