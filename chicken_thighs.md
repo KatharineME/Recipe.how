@@ -2,21 +2,35 @@ https://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
 
 ## Ingredients
 
-- 6 boneless chicken thighs, about 1 ½ pounds\*
-- 1/2 teaspoon garlic powder
-- 1/2 teaspoon onion powder
-- 1/2 teaspoon paprika
-- Kosher salt and black pepper, to taste
-- 2 tablespoons olive oil
-- 1 tablespoon butter
-- 1 small shallot, minced
-- 3 cloves garlic, minced
-- 1/2 cup chicken broth
-- 1 tablespoon fresh lemon juice
-- 2 sprigs fresh thyme
-- 1/4 teaspoon crushed red pepper flakes
-- 1/3 cup heavy cream
-- Freshly chopped parsley, for garnish
+6 boneless chicken thighs, about 1 ½ pounds\*
+
+1/2 teaspoon garlic powder
+
+1/2 teaspoon onion powder
+
+1/2 teaspoon paprika
+
+Kosher salt and black pepper, to taste
+
+2 tablespoons olive oil
+
+1 tablespoon butter
+
+1 small shallot, minced
+
+3 cloves garlic, minced
+
+1/2 cup chicken broth
+
+1 tablespoon fresh lemon juice
+
+2 sprigs fresh thyme
+
+1/4 teaspoon crushed red pepper flakes
+
+1/3 cup heavy cream
+
+Freshly chopped parsley, for garnish
 
 ## Instructions
 
