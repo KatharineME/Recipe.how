@@ -8,7 +8,7 @@
 
 5 Tbs Honey
 
-1. 5 Tbs Garlic
+1.5 Tbs Garlic
 
 1 Tsp Ginger (or ginger powder)
 
