@@ -1,4 +1,4 @@
-https://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
+ohttps://www.twopeasandtheirpod.com/easy-skillet-chicken-thighs/
 
 ## Ingredients
 
@@ -48,5 +48,8 @@ Place the chicken back in the pan with the sauce. Garnish with fresh parsley. Se
 
 ## Notes
 
-You can use skin-on or skinless chicken thighs, whatever you prefer. You can use chicken breasts, but the thighs are juicier.
+You can use skin-on or skinless chicken thighs, whatever you prefer. 
+
+You can use chicken breasts, but the thighs are juicier.
+
 Store leftover chicken thighs in an airtight container in the refrigerator for up to 3 days.
