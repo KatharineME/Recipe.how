@@ -26,7 +26,13 @@ Tin foil
 
 ## Ingredients
 
-Add flour, salt, and pepper to mixing bowl. Pat wings dry and coat them with flour mixture. Add olive oil to outside of coated wings. Place on baking sheet with tin foil on bottom and parchment paper on top.
+Add flour, salt, and pepper to mixing bowl. 
+
+Pat wings dry and coat them with flour mixture. 
+
+Add olive oil to outside of coated wings. 
+
+Place on baking sheet with tin foil on bottom and parchment paper on top.
 
 Bake for 35 minutes at 425 degrees. Flip in middle of time.
 
