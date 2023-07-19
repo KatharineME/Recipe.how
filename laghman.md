@@ -73,7 +73,7 @@ olive oil as needed
 
 10. Add water to cover all goodies, add garlic, allow it to boil for 5-10 min or so. Add salt to taste
 
-## Noodle preparation
+#### Noodle preparation
 Cut the dough into few pieces, roll each piece into long thin band, On top of each layer, brush with plenty of vegetable oil to keep them from sticking to each other. Follow the pictures for instructions
 
 Roll each band into long round thinner band and roll onto a plate as below. Start with inner most layer, then next outer layer. 
@@ -94,7 +94,4 @@ Toss the noodle into another container with cold water to cool down the noodle a
 
 Place one person portion on a plate, you need to break the noodle by hand if it is too much. Add about 1/2 cup lamb stew on top and serve. Laghman needs to be served to each individual one by one, it tastes great when it is fresh.
 
-If you feel your noodle turned out a bit bland, add some extra salt to the boiling water. So your next batch noodle will turn out better. And this water after boiling noodle can also be served as soup. We were told since we were kids that it helps digest laghman. 
-
-Enjoy and keep me posted on the comment how you like laghman
-
+If you feel your noodle turned out a bit bland, add some extra salt to the boiling water. So your next batch noodle will turn out better. And this water after boiling noodle can also be served as soup. We were told since we were kids that it helps digest laghman.
