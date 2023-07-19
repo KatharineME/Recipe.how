@@ -48,7 +48,7 @@ Place the chicken back in the pan with the sauce. Garnish with fresh parsley. Se
 
 ## Notes
 
-You can use skin-on or skinless chicken thighs, whatever you prefer. 
+You can use skin-on or skinless chicken thighs, whatever you prefer.
 
 You can use chicken breasts, but the thighs are juicier.
 

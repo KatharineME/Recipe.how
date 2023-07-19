@@ -5,6 +5,7 @@ Serving: 6
 ## Ingredients
 
 #### Stew
+
 1 tablespoon of diced onion
 
 1 pound of lamb, cubed, it is ok to have some bones
@@ -30,6 +31,7 @@ salt to taste
 1/2 cup of olive oil
 
 #### Dough
+
 2 cups of non-bleached all purpose flour. I used Gold medal brand, premium quality flour
 
 (1.5 teaspoon less than 2/3 cup) of water
@@ -39,6 +41,7 @@ salt to taste
 olive oil as needed
 
 #### Bioling Noodle
+
 4 cups of water
 
 3/4 to 1 teaspoon salt, or add to taste
@@ -46,13 +49,15 @@ olive oil as needed
 ## Instructions
 
 #### Dough mixing
-1. Add the salt with flour in a bowl, mix well,  then add water step wise while mixing. Try to mix harder with hand at start. Also by the end, be careful to use less and less water each time. Water should be enough to mix the dough, but not too much. If you don't use up all water, don't worry. You may need some for kneading
+
+1. Add the salt with flour in a bowl, mix well, then add water step wise while mixing. Try to mix harder with hand at start. Also by the end, be careful to use less and less water each time. Water should be enough to mix the dough, but not too much. If you don't use up all water, don't worry. You may need some for kneading
 
 2. After mixing the dough well, smooth the dough by kneading with fists and folding for about 5 min.(These two steps can be done by kitchen aid), you can also add tiny bit water to smooth some uneven surface of the dough while kneading. Be careful not to accidentally add too much water. It is better you had your water in a container, you make your hand wet a little bit by dipping your hand into the water, then continue kneading and folding. Make sure your dough is completely smooth.
 
 3. Spray some vegetable oil on top of dough, cover the dough with plastic wrap first, then towel on top, let sit for 30 min at room temperature
 
 #### Stew
+
 1. Heat the cooking pan with high heat.
 
 2. Add oil in the cooking pan, heat at high heat
@@ -74,9 +79,10 @@ olive oil as needed
 10. Add water to cover all goodies, add garlic, allow it to boil for 5-10 min or so. Add salt to taste
 
 #### Noodle preparation
+
 Cut the dough into few pieces, roll each piece into long thin band, On top of each layer, brush with plenty of vegetable oil to keep them from sticking to each other. Follow the pictures for instructions
 
-Roll each band into long round thinner band and roll onto a plate as below. Start with inner most layer, then next outer layer. 
+Roll each band into long round thinner band and roll onto a plate as below. Start with inner most layer, then next outer layer.
 
 Brush the top of circled dough with plenty of oil, cover with plastic wrap, keep at room temperature for 30 min. If you feel your dough is still a bit hard after 30 min, keep it a bit longer, so it is easier to stretch.
 

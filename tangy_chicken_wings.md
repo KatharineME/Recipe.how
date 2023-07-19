@@ -26,11 +26,11 @@ Tin foil
 
 ## Ingredients
 
-Add flour, salt, and pepper to mixing bowl. 
+Add flour, salt, and pepper to mixing bowl.
 
-Pat wings dry and coat them with flour mixture. 
+Pat wings dry and coat them with flour mixture.
 
-Add olive oil to outside of coated wings. 
+Add olive oil to outside of coated wings.
 
 Place on baking sheet with tin foil on bottom and parchment paper on top.
 

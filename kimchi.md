@@ -1,6 +1,7 @@
 https://www.youtube.com/watch?v=0sX_wDCbeuU
 
 ## Ingredients
+
 10 pounds baechu (napa cabbage)
 
 1 cup kosher salt
@@ -47,6 +48,7 @@ Every 30 minutes, turn the cabbage over to salt evenly (total salting time will 
 Drain the cabbage and set aside.
 
 ## Make porridge
+
 Put 3 cups of water and sweet rice flour in a pot and mix it well and bring to a boil. Keep stirring until the porridge makes bubbles (about 5 minutes).
 
 Add ¼ cup sugar. Stir and cook for a few more minutes until it’s translucent.
@@ -54,24 +56,24 @@ Add ¼ cup sugar. Stir and cook for a few more minutes until it’s translucent.
 Cool it down.
 
 ## Make kimchi paste
+
 Place the cold porridge into a large bowl. Now you will add all your ingredients one by one.
 
 Add fish sauce, hot pepper flakes, crushed garlic, minced ginger, and minced onion.
-*tip: it’s much easier to use a food processor!
+\*tip: it’s much easier to use a food processor!
 
 Wash and drain the salty squid. Chop it up and add it to the kimchi paste.
-*tip: how to prepare salty squid is posted on the FAQ above!
+\*tip: how to prepare salty squid is posted on the FAQ above!
 
 Add green onions, chopped leek, Korean radish, and carrot.
 Mix all ingredients well and your kimchi paste is done.
 
 ## Put Together
+
 Put the kimchi paste in a large basin and add all the cabbage. Mix it by hand.
-*tip: If your basin is not large enough to mix all the ingredients at once, do it bit by bit.
+\*tip: If your basin is not large enough to mix all the ingredients at once, do it bit by bit.
 
 Put the kimchi into an air-tight sealed plastic container or glass jar.
 
 How do you know it’s fermented or not?
 One or 2 days after, open the lid of the Kimchi container. You may see some bubbles with lots of liquids, or maybe sour smells. That means it’s already being fermented.
-
-
