@@ -29,7 +29,7 @@ salt to taste
 
 1/2 cup of olive oil
 
-#### Dough preparation
+#### Dough
 2 cups of non-bleached all purpose flour. I used Gold medal brand, premium quality flour
 
 (1.5 teaspoon less than 2/3 cup) of water
@@ -38,7 +38,7 @@ salt to taste
 
 olive oil as needed
 
-#### For boiling noodle
+#### Bioling Noodle
 4 cups of water
 
 3/4 to 1 teaspoon salt, or add to taste
