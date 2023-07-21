@@ -2,7 +2,7 @@
 
 1/2 cup mirin
 
-1/2 cup sake
+1/2 cup sake (substitute with mirin)
 
 1/2 cup soy sauce
 
