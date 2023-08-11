@@ -30,6 +30,6 @@ Mix together eggs and lemon juice of filling. Add in sugar and flour and mix wel
 
 Pour filling into pastry case.
 
-Bake at 350 for 25 minutes. The center will still giggle.
+Bake at 350 for 25 minutes. The center will still jiggle.
 
 Put in fridge until fully cooled.
