@@ -8,11 +8,11 @@
 
 ½ teaspoon salt
 
-1 cups granulated sugar
+1 cup granulated sugar
 
 1 teaspoon vanilla
 
-1 teaspoon lemon extract
+1 teaspoon lemon extract (or 1 lemon squeezed)
 
 1 cup cold water
 
